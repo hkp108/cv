@@ -41,7 +41,7 @@ __Brownes Chemist/Belvedere Pharmacy (Aug 2012-Jan 2016)__
 
 Community Pharmacist
 
-__Broadway Pharmacy (Jul 2011-Jul 2012) __
+__Broadway Pharmacy (Jul 2011-Jul 2012)__
 
 Pre-registration Pharmacist
 
